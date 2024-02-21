@@ -1,5 +1,5 @@
-Group Members:
-ERICA BINALLA
-DIANNE AMONDINA
-CHYNN BANZUELA
-ANDREA DAINE DACILLO
+GROUP MEMBERS:
+Erica Binalla
+Dianne Amondina
+Chynn Banzuela
+Andrea Daine Dacillo
